@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 PM professional :)
+- 🔭 PM / Cybersecurity professional :)
 - 🌱 Currently looking for PM and Technical Writing gigs!
 - 💬 Talk to me about collaborating on a project!
 - 📫 How to reach me: [/in/nyanscripter](https://www.linkedin.com/in/nyanscripter/) or my websites: [here](https://nyanscripter.uwu.ai/) and [here](https://demesa.ju.mp/)
